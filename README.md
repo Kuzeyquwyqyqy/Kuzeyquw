@@ -1,2 +1,2 @@
-# Kuzeyquw
-Dysggs
+emir şekerli
+
